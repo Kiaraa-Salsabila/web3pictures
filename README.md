@@ -1,4 +1,4 @@
-# MY WEB3 PICTURES
+# MY WEB3 PICTURE
 - 0xkiara (1).jpg
 - 0xkiara (2).jpg
 - 0xkiara (3).jpg
